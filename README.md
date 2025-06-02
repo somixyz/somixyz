@@ -27,4 +27,3 @@ Let’s connect to explore collaboration opportunities and share insights!
 ## 🎯 A Little About Me
 
 Outside of work, I’m a chess lover ♟️, sports enthusiast (basketball 🏀, football ⚽, armwrestling 💪, kickboxing 🥊), clarinet player 🎶, avid reader, and enjoy social and strategic games 🎲. I love spending time outdoors 🌳 and hanging out with friends.
-```
