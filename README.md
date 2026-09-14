@@ -29,6 +29,5 @@ Let’s connect to explore collaboration opportunities and share insights!
 Outside of work, you can find me:
 - Playing **chess** ♟️
 - Enjoying **sports** (basketball 🏀, football ⚽, armwrestling 💪, kickboxing 🥊)
-- Playing the **clarinet** 🎶
 - Reading books and engaging in **social and strategic games** 🎲
 - Spending time **outdoors** 🌳 and hanging out with friends
